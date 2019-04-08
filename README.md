@@ -1,5 +1,7 @@
 # Technical support
 
-Reincarnation is a tower defense game. It is completely humanized. If you are abused in the level, you can customize a level, then play a game to vent. When the gold coins are accumulated enough, you can upgrade the level of the battery and upgrade the level of the battery. , will randomly add some rare attributes to make your defense more solid. There is no charging item in this app. The property of your turret depends entirely on your accumulated wealth. There is no shortcut, no shortcut, step by step challenge!
+Pet owners know that the longest time spent with us is not necessarily a relative, maybe he will be the pet we have. It is not a strange thing that people now have pets. Many people want to keep pets, but they don't know. What kind of feed does the pet use, how much feed is used, what the pet's toy needs, how to train the pet, etc., and finally have to give up the idea of keeping the pet.
 
-If you have any questions, please contact nlj5zr@163.com
+The PetSupplies we created were created for the troubles of this type of person. We will carefully match the proportion of different feeds and different age groups, so that pets get a better diet and make pets grow healthier.
+
+If you have any questions, please contact njklm262@sina.com
